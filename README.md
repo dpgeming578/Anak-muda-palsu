@@ -1,1 +1,0 @@
-# Anak-muda-palsu
